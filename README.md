@@ -1,2 +1,2 @@
-# Goku-MD-Oficial-
+# koruda-MD-Oficial-
 Nueva generación 
